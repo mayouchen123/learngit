@@ -1,1 +1,6 @@
 this is i first try to learn git!
+OOOOOOOOOOOOOOOO
+PPPPPPPPPPPPPPPPPPPPP
+WWWWWWWWWWWWWWWWWW
+ＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫＫ
+ＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰＰ
